@@ -1,0 +1,1 @@
+# japost1985.github.io
